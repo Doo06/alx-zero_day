@@ -1,1 +1,1 @@
-Create a new directory called
+Collaboration is the base of a company
